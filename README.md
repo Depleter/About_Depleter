@@ -1,3 +1,3 @@
-# Hi, I'm anonymous!
+# Hi, I'm lonely!
 - I'm a **Computer Science** Student
-- My fun fact is that I draw!
+- My only friend is an oreo shake
